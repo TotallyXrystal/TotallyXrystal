@@ -8,4 +8,6 @@ itch.io profile: https://totallyxrystol.itch.io/
 
 discort server: https://discord.gg/x2Z3QFeB}
 
-<img width="1285" height="721" alt="wall" src="https://github.com/user-attachments/assets/31244da5-7c2a-4d63-a0bd-99492becb5ee" />
+https://github.com/user-attachments/assets/62829a75-6e0d-4482-b26f-b9750e2617a7
+
+![IMG_0641](https://github.com/user-attachments/assets/9a8110f6-987f-494b-9e7c-e6aac75def6d)
