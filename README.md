@@ -10,4 +10,24 @@ discort server: https://discord.gg/x2Z3QFeB}
 
 https://github.com/user-attachments/assets/62829a75-6e0d-4482-b26f-b9750e2617a7
 
-![IMG_0641](https://github.com/user-attachments/assets/9a8110f6-987f-494b-9e7c-e6aac75def6d)
+oi oi oi sussy baka
+
+my pc stuff:
+
+gpu: gtx 1650
+
+cpu: intel core i5
+
+pc brand: hp victus (a  f r e a k i n g  l a p t o p)
+
+os: windows 11
+
+amount of storage ssd: 1.7 TB
+
+
+aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
+
+https://github.com/user-attachments/assets/177a7a6a-244d-4edb-833a-4c4d22890ad2
+
+you crossed the line
+line
