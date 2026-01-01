@@ -6,7 +6,7 @@ gamebanananannannnan profile: https://gamebanana.com/members/4695004
 
 itch.io profile: https://totallyxrystol.itch.io/
 
-discort server: https://discord.gg/x2Z3QFeB}
+discort server: https://discord.gg/yR6byaPfsG
 
 https://github.com/user-attachments/assets/62829a75-6e0d-4482-b26f-b9750e2617a7
 
