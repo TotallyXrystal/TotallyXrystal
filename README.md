@@ -34,3 +34,9 @@ esvdkjmlbn dghdinjom
 https://github.com/user-attachments/assets/34966549-b954-4cdf-a111-7b55d0db4bf6
 
 boundariey
+
+no boundarey
+
+![OOOOOJOFGHNADGIPFJGHJOAUEFJG´POAJDFPIGUADIUFH](https://github.com/user-attachments/assets/6fb9933e-0d50-4a2c-92d3-30d3e9ad4b78) ![OOOOOJOFGHNADGIPFJGHJOAUEFJG´POAJDFPIGUADIUFH](https://github.com/user-attachments/assets/d4188cad-70ae-4bf7-a65d-2caafcbe1840)
+
+PLACEHOLDR
