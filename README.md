@@ -1,3 +1,10 @@
+
+<img width="554" height="142" alt="lawl" src="https://github.com/user-attachments/assets/5b7481de-c352-4ac8-b4e3-0b7ca0ebda19" />
+
+
+
+*GET YO BURGER ON THE HILL* - me every second
+
 hello i'am a chilean guy who is producer artist and kinda coder and i have a
 
 youtube channel https://www.youtube.com/@xrystalel
@@ -7,36 +14,3 @@ gamebanananannannnan profile: https://gamebanana.com/members/4695004
 itch.io profile: https://totallyxrystol.itch.io/
 
 discort server: https://discord.gg/yR6byaPfsG
-
-https://github.com/user-attachments/assets/62829a75-6e0d-4482-b26f-b9750e2617a7
-
-oi oi oi sussy baka
-
-my pc stuff:
-
-gpu: gtx 1650
-
-cpu: intel core i5
-
-pc brand: hp victus (a  f r e a k i n g  l a p t o p)
-
-os: windows 11
-
-amount of storage ssd: 1.7 TB
-
-
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-
-https://github.com/user-attachments/assets/177a7a6a-244d-4edb-833a-4c4d22890ad2
-
-esvdkjmlbn dghdinjom
-
-https://github.com/user-attachments/assets/34966549-b954-4cdf-a111-7b55d0db4bf6
-
-boundariey
-
-no boundarey
-
-![OOOOOJOFGHNADGIPFJGHJOAUEFJG´POAJDFPIGUADIUFH](https://github.com/user-attachments/assets/6fb9933e-0d50-4a2c-92d3-30d3e9ad4b78) ![OOOOOJOFGHNADGIPFJGHJOAUEFJG´POAJDFPIGUADIUFH](https://github.com/user-attachments/assets/d4188cad-70ae-4bf7-a65d-2caafcbe1840)
-
-PLACEHOLDR
