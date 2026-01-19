@@ -1,6 +1,6 @@
 hello i'am a chilean guy who is producer artist and kinda coder and i have a
 
-youtube channel https://www.youtube.com/@itsNOTXrystol
+youtube channel https://www.youtube.com/@xrystalel
 
 gamebanananannannnan profile: https://gamebanana.com/members/4695004
 
