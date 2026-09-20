@@ -1,16 +1,13 @@
 
-<img width="554" height="142" alt="lawl" src="https://github.com/user-attachments/assets/5b7481de-c352-4ac8-b4e3-0b7ca0ebda19" />
+<img width="800" height="188" alt="David890cnWatermark2026" src="https://github.com/user-attachments/assets/6abd390d-9085-42a7-a994-ce6daf189a5e" />
+
+Hi, i'm David890cn, and this is my GitHub acc. I usually do FNF mods bc i enjoy making them :3
 
 
+YouTube Channel: https://www.youtube.com/@david820cl
 
-*GET YO BURGER ON THE HILL* - me every second
+GameBanana Account (Inactive): https://gamebanana.com/members/4695004
 
-hello i'am a chilean guy who is producer artist and kinda coder and i have a
+Itch io Account (god damn it i lost it): https://totallyxrystol.itch.io/
 
-youtube channel https://www.youtube.com/@xrystalel
-
-gamebanananannannnan profile: https://gamebanana.com/members/4695004
-
-itch.io profile: https://totallyxrystol.itch.io/
-
-discort server: https://discord.gg/yR6byaPfsG
+That's all.
